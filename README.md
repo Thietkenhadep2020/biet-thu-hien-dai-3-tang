@@ -117,3 +117,26 @@
 <img border="0" data-original-height="731" data-original-width="1300" src="https://1.bp.blogspot.com/-Ctn6QMElgQU/XuwZD3SO_8I/AAAAAAAAARc/TcMdWel7kAET1j8Y0wy6oYNz7fHHH4xUwCLcBGAsYHQ/s1600/thiet-ke-noi-that-nha-dep-voi-san-thuong-1.jpg"></div>
 <br>
 </div>
+
+Xem thêm: <a href="https://sites.google.com/site/mauthietkenhadep2020/999-mau-thiet-ke-biet-thu-dep-xu-huong-moi-nhat-hien-nay">999+ Mẫu thiết kế biệt thự đẹp xu hướng mới nhất hiện nay
+</a>
+
+
+
+NEOHOUSE - HCM
+
+Đ/c: Bàu Cát 8, P. 11, Q. Tân Bình, TP. Hồ Chí Minh.
+
+NEOHOUSE - ĐÀ NẴNG
+
+Đ/c: Phan Đăng Lưu, Q. Hải Châu, Tp. Đà Nẵng.
+
+Hotline: 0906100202/ 0937100202
+
+LH Đối tác: info@neohouse.vn
+
+LH Tư vấn khách hàng: tuvan@neohouse.vn
+
+XƯỞNG NỘI THẤT: Đường Bà Điểm 3, Ấp Bắc Lân, Xã Bà Điểm, Huyện Hóc Môn.
+
+XƯỞNG SẮT- CỬA NHÔM KÍNH: Đường số 4, P. Bình Hưng Hòa A, Q. Bình Tân.
